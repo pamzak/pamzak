@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @pamzak
-- 👀 I’m interested in .. 
 - 🌱 I’m currently learning  AI  
 
 - 📫 How to reach me https://x.com/ZakiPamir , https://www.linkedin.com/in/pamirzaki/
